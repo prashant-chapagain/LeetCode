@@ -1,1 +1,1 @@
-Leed Code Dailt problems until i get bored
+Leed Code Daily problems until i get bored
